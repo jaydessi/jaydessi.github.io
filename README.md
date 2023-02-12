@@ -1,2 +1,0 @@
-# jaydessi.github.io
-blog
